@@ -3,10 +3,9 @@
 
   <div align="center">
 
-  ![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thedivide.png)
+  ![](https://komarev.com/ghpvc/?username=knifefightt&color=yellow&label=peeps)
 
-    
-![](https://komarev.com/ghpvc/?username=knifefightt&color=yellow)
+  ![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thedivide.png)
 
 ‎ 
 
