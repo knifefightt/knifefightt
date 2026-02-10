@@ -7,7 +7,7 @@
 
  ![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thedivide.png)
  
-$${\color{#D4A32F}ABOUT\ ME}$$
+# $${\color{#D4A32F}ABOUT\ ME}$$
 
 $${\color{purple}hi\ uhh\ call\ me\ william\ or\ knife}$$
 
