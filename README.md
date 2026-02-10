@@ -7,10 +7,14 @@
 
  ![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thedivide.png)
  
-$${\color{#FFC300}ABOUT\ ME}$$
+$${\color{#D4A32F}ABOUT\ ME}$$
+
+$${\color{purple}hi\ uhh\ call\ me\ william\ or\ knife}$$
+
+$${\color{#D4A32F}nonbinary\ any\ pronouns}$$
 
 ‎ 
-![image alt](https://github.com/knifefightt/knifefightt/blob/c7bd9336a858e751daaf78b086cbfe1692e8723e/coolhat.webp)
+![image alt](https://github.com/knifefightt/knifefightt/blob/50b878e2404f673e7164748a844c99165fa8f4d4/hedoaliljig.webp)
 
 ![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thesillythings.png)
 
