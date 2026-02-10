@@ -12,7 +12,7 @@
 
 ‎ 
 ‎
-hi i have NO idea how this website works sorry ..
+hi i have NO idea how this website works sorry . .
 
 ‎ ‎ 
 ‎ 
