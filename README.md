@@ -3,13 +3,13 @@
 
   <div align="center">
 
-  ![](https://komarev.com/ghpvc/?username=knifefightt&color=yellow&label=peeps)
+  ![](https://komarev.com/ghpvc/?username=knifefightt&color=1A1818&label=peeps)
 
  ![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thedivide.png)
  
-# $${\color{#D4A32F}ABOUT\ ME}$$
+# $${\color{#DB0F0F}ABOUT\ ME}$$
 
-$${\color{purple}hi\ uhh\ call\ me\ william\ or\ knife}$$
+$${\color{#DB7F0F}hi\ uhh\ call\ me\ william\ or\ spoke}$$
 
 $${\color{#D4A32F}nonbinary\ any\ pronouns}$$
 
