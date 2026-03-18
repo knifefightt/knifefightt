@@ -5,22 +5,24 @@
 
   ![](https://komarev.com/ghpvc/?username=knifefightt&color=1A1818&label=peeps)
 
- ![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thedivide.png)
+![image alt](https://github.com/knifefightt/knifefightt/blob/17701dc81a0bbc55d06706141eeb8ad55718898f/THETHEUHHH.gif)
  
 # $${\color{#DB0F0F}ABOUT\ ME}$$
 
-$${\color{#DB7F0F}hi\ uhh\ call\ me\ william\ or\ spoke}$$
+$${\color{#FF9900}HIHIHI\ call\ me\ william\ or\ spoke}$$
 
-$${\color{#D4A32F}nonbinary\ any\ pronouns}$$
+$${\color{#DBCD0F}nonbinary\ any\ pronouns}$$
 
 ‎ 
-![image alt](https://github.com/knifefightt/knifefightt/blob/50b878e2404f673e7164748a844c99165fa8f4d4/hedoaliljig.webp)
+![image alt](https://github.com/knifefightt/knifefightt/blob/be5b0d79ab32d3021ac3fc8c2e85aa97367c4931/AWWTHE.webp)
 
-$${\color{purple}interests:\ mcyt,\ fnaf,\ forsaken,\ danganronpa\ and\ many\ more}$$
+$${\color{#72DB0F}interests:\ mcyt,\ fnaf,\ forsaken,\ danganronpa\ and\ many\ more}$$
 
-$${\color{#D4A32F}i\ am\ very\ awkward\ and\ antisocial,\ itll\ take\ a\ while\ for\ me\ to\ trust\ you}$$
+$${\color{#002AFF}i\ am\ very\ awkward\ and\ antisocial,\ itll\ take\ a\ while\ for\ me\ to\ trust\ you}$$
 
-![image alt](https://github.com/knifefightt/knifefightt/blob/e13f1dba78679d5ccf7fc00d26ff12e42c1e9743/thesillythings.png)
+$${\color{#970FDB}william\ afton\ and\ spokeishere\ fictionkin!\ i\ love\ doubles}$$
+
+![image alt](https://github.com/knifefightt/knifefightt/blob/17701dc81a0bbc55d06706141eeb8ad55718898f/THETHEUHHH.gif)
 
 </div>
 
