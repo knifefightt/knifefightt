@@ -16,7 +16,7 @@ $${\color{#DBCD0F}nonbinary\ any\ pronouns}$$
 ‎ 
 ![image alt](https://github.com/knifefightt/knifefightt/blob/be5b0d79ab32d3021ac3fc8c2e85aa97367c4931/AWWTHE.webp)
 
-$${\color{#72DB0F}interests:\ mcyt,\ fnaf,\ forsaken,\ danganronpa\ and\ many\ more}$$
+$${\color{#72DB0F}interests:\ mcyt,\ fnaf,\ warrior\ cats,\ danganronpa\ and\ many\ more}$$
 
 $${\color{#002AFF}i\ am\ very\ awkward\ and\ antisocial,\ itll\ take\ a\ while\ for\ me\ to\ trust\ you}$$
 
