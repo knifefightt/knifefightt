@@ -18,7 +18,7 @@ $${\color{#DBCD0F}nonbinary\ any\ pronouns}$$
 
 $${\color{#72DB0F}interests:\ mcyt,\ fnaf,\ warrior\ cats,\ danganronpa\ and\ many\ more}$$
 
-$${\color{#002AFF}i\ am\ very\ awkward\ and\ shy,\ itll\ take\ a\ while\ for\ me\ to\ trust\ you}$$
+$${\color{#002AFF}always\ iwc\ pls.\ and\ be\ kind\ to\ me.}$$
 
 $${\color{#970FDB}boundary\ breaker\ and\ spokeishere\ fictionkin!}$$
 
