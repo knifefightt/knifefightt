@@ -9,7 +9,7 @@
  
 # $${\color{#DB0F0F}ABOUT\ ME}$$
 
-$${\color{#FF9900}HIHIHI\ call\ me\ william\ or\ spoke}$$
+$${\color{#FF9900}HIHIHI\ call\ me\ vinny\ or\ spoke}$$
 
 $${\color{#DBCD0F}nonbinary\ any\ pronouns}$$
 
@@ -18,9 +18,9 @@ $${\color{#DBCD0F}nonbinary\ any\ pronouns}$$
 
 $${\color{#72DB0F}interests:\ mcyt,\ fnaf,\ warrior\ cats,\ danganronpa\ and\ many\ more}$$
 
-$${\color{#002AFF}i\ am\ very\ awkward\ and\ antisocial,\ itll\ take\ a\ while\ for\ me\ to\ trust\ you}$$
+$${\color{#002AFF}i\ am\ very\ awkward\ and\ shy,\ itll\ take\ a\ while\ for\ me\ to\ trust\ you}$$
 
-$${\color{#970FDB}william\ afton\ and\ spokeishere\ fictionkin!\ i\ love\ doubles}$$
+$${\color{#970FDB}spokeishere\ fictionkin!}$$
 
 ![image alt](https://github.com/knifefightt/knifefightt/blob/17701dc81a0bbc55d06706141eeb8ad55718898f/THETHEUHHH.gif)
 
