@@ -20,7 +20,7 @@ $${\color{#72DB0F}interests:\ mcyt,\ fnaf,\ warrior\ cats,\ danganronpa\ and\ ma
 
 $${\color{#002AFF}i\ am\ very\ awkward\ and\ shy,\ itll\ take\ a\ while\ for\ me\ to\ trust\ you}$$
 
-$${\color{#970FDB}boundary\ breaker\ &\ spokeishere\ fictionkin!}$$
+$${\color{#970FDB}boundary\ breaker\ and\ spokeishere\ fictionkin!}$$
 
 ![image alt](https://github.com/knifefightt/knifefightt/blob/17701dc81a0bbc55d06706141eeb8ad55718898f/THETHEUHHH.gif)
 
