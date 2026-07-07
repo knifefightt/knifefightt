@@ -20,7 +20,7 @@ $${\color{#72DB0F}interests:\ mcyt,\ fnaf,\ warrior\ cats,\ danganronpa\ and\ ma
 
 $${\color{#002AFF}always\ iwc\ pls.\ and\ be\ kind\ to\ me.}$$
 
-$${\color{#970FDB}boundary\ breaker\ and\ spokeishere\ fictionkin!}$$
+$${\color{#970FDB}boundary\ breaker\ and\ spokeishere\ fictionkin!\ PLEASE\ BE\ MY\ OOMF\ ON\ TWITTER\ PLEASE\ I\ FOLLOW\ BACK}$$
 
 ![image alt](https://github.com/knifefightt/knifefightt/blob/17701dc81a0bbc55d06706141eeb8ad55718898f/THETHEUHHH.gif)
 
